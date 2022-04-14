@@ -1,2 +1,2 @@
 # About-Me
-About me and My Organisation PRD IT Solutions
+About me and My Compant Itanium Software and services LLC
